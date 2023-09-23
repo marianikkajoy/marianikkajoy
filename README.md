@@ -1,4 +1,4 @@
-[![MasterHeadhttps](https://cdn.weasyl.com/~fluffkevlar/submissions/30165/efb64790c6059bf9f32f9922bdfd36fad18bdd135aff5f67e99a7f0f29749042/fluffkevlar-starfield-gif.gif)
+![MasterHeadhttps](https://cdn.weasyl.com/~fluffkevlar/submissions/30165/efb64790c6059bf9f32f9922bdfd36fad18bdd135aff5f67e99a7f0f29749042/fluffkevlar-starfield-gif.gif)
 <h1 align="center">Hi 👋, I'm Maria Nikka Joy Placeros</h1>
 <img align="right" alt="coding" width="400" src="https://media.tenor.com/images/7db4eaa3e47272c8e58ee018fc390b7d/tenor.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=marianikkajoy&label=Profile%20views&color=0e75b6&style=flat" alt="marianikkajoy" /> </p>
