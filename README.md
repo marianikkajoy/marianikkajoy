@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **marianikkajoyplaceros61@gmail.com**
 
-- ⚡ Fun fact **be humble😊**
+- ⚡ Fun fact ****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
