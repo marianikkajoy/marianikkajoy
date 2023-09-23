@@ -1,6 +1,6 @@
-[![MasterHeadhttps](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTOaVoVtgBtdrbgo2ZYDMWw5H25I-RGkxzt_w&usqp=CAU)
+[![MasterHeadhttps](https://cdn.weasyl.com/~fluffkevlar/submissions/30165/efb64790c6059bf9f32f9922bdfd36fad18bdd135aff5f67e99a7f0f29749042/fluffkevlar-starfield-gif.gif)
 <h1 align="center">Hi 👋, I'm Maria Nikka Joy Placeros</h1>
-<img align="right" alt="coding" width="400" src="https://mir-s3-cdn-cf.behance.net/project_modules/disp/601014116770475.6068beff4640a.gif">
+<img align="right" alt="coding" width="400" src="https://media.tenor.com/images/7db4eaa3e47272c8e58ee018fc390b7d/tenor.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=marianikkajoy&label=Profile%20views&color=0e75b6&style=flat" alt="marianikkajoy" /> </p>
 
 - 📫 How to reach me **marianikkajoyplaceros61@gmail.com**
